@@ -1,4 +1,4 @@
-[http://affix.joburg/temtem/](TEMTEM SITE LINK)
+[TEMTEM SITE LINK](http://affix.joburg/temtem/)
 
 ### 2018 IMY320 Team Focus
 
